@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @marxcaua.
+- 👀 I’m interested in learning.
+- 🌱 I’m currently learning Front-End.
+- 📫 How to reach me @marxcaualimma@gmail.com
